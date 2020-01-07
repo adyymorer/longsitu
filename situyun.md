@@ -1,6 +1,6 @@
 # 1.[永久牢记跳转域名](https://situcloud.tk)  
 
-# 2.[永久牢记发布页](https://github.com/adyymorer/longsitu/edit/master/situyun.html)
+# 2.[永久牢记发布页](https://github.com/adyymorer/longsitu/edit/master/situyun.md)
 
 ## 43.备用域名（无需梯子）
 # :[备用① ](https://situcloud.xyz)
