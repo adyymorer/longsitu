@@ -7,8 +7,7 @@
 # :[**备用②** ](https://hondacloud.top)
 # :[**备用③** ](https://hondacloud.top)
 
-# 4.**官网和其他**：**公共邀请码** **situyun** 
+# 4.**官网和其他**：**公共邀请码** **honda** 
 
-# 5.[**TG群组 @situyun** ](https://t.me/situcloud) 
+# 5.[**TG群组 @hondacloud** ](https://t.me/hondacloud) 
 
-# 6.[**TG频道 @situyuntz** ](https://t.me/situyuntz) 
